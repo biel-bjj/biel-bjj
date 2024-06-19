@@ -13,4 +13,4 @@ gnunesiek@gmail.com
 
 
 
-![](https://media.tenor.com/F-X3WFaazQAAAAAM/statue-of-god.gif)
+![](https://media.tenor.com/mCiM7CmGGI4AAAAM/naruto.gif)           ![](https://media.tenor.com/uO37-aKreAEAAAAM/kakashi-naruto.gif)
